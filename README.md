@@ -1,1 +1,1 @@
-# Tasks during the Internship as a Data Analytics at Cognifyz Technologies
+# Tasks during the Internship as a Data Analyst at Cognifyz Technologies
